@@ -1,4 +1,7 @@
-### Hi there 👋
+Nois somos o aluno @Bananinha13
+somos do colegio Estadual Leonilda Papem
+nosso objetivo aqui é abrender
+com a professora Carla Kuhn Graunke
 
 <!--
 **Bananinha13/Bananinha13** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
